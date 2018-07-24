@@ -1,1 +1,2 @@
 LISTA DE PARTICIPANTES DEL CURSO
+1.- Christian Lopez Baya
